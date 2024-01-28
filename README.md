@@ -1,0 +1,2 @@
+# kamera
+fgdfdfdfdfdfdfd tolol lu
